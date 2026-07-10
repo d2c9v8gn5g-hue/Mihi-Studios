@@ -1,2 +1,2 @@
-# Mihi-Studios
+# Mihić-Studios
 Filmstudio
